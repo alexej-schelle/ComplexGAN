@@ -28,7 +28,7 @@ Die Studierenden erlernen die berufspraktisch relevante Anwendung von Methoden z
 
 *********************************************************************************************************************
 
-    work in progress
+   Dr. A. Schelle with IU Internationale Hochschule
 
 *********************************************************************************************************************
 
